@@ -1,9 +1,11 @@
-# Cuteness_AGB:
+# Cuteness AGB:
 
 
 §1: Jede person ist generell Cute.
 
 §2: §1 ist nicht Wiederufbar.
+
+
 
 
 
