@@ -1,9 +1,9 @@
-# Cuteness AGB:
+# Cuteness AGB/TOS:
 
 
 §1: Jede person ist generell Cute.
 
-§2: §1 ist nicht Wiederufbar.
+§2: Wenn §1 verneint wird tritt §1 in kraft.
 
 
 
@@ -39,4 +39,4 @@
 
 
 
-Long story short hiermit verwirkliche ich mir endlich mal einen Traum den ich seit ein paar Jahren habe. <3 UwU
+Long story short hiermit verwirckliche ich mir endlich mal einen Traum den ich seit ein paar Jahren habe. <3 UwU
